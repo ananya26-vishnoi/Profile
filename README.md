@@ -1,3 +1,11 @@
 # Profile
 
-<a href='https://www.freepik.com/vectors/infographic'>Infographic vector created by vectorjuice - www.freepik.com</a>
+
+
+
+
+<img align="left"  width="26px" src="https://image.freepik.com/free-vector/resume-writing-service-abstract-concept_335657-3098.jpg/>
+
+
+---
+
